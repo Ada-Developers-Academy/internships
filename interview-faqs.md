@@ -27,7 +27,7 @@
      
  1. Will I get a chance to comment on my interview experience?  
  
-    > Yes, there will be a seperate survey for that information set out after placements are made. 
+    > Yes, there will be a seperate survey for that information sent out after placements are made. 
     
  1. When will I receive my written feedback from my interviews. 
  
